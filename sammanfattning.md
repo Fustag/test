@@ -1,7 +1,7 @@
 # Bakgrund:  
 Armandria, en gång blomstrande, är nu i kaos efter kejsardömets fall för 20 år sedan. Skuggvarelser kallade **De Namnlösa** har släppts lös av en okänd kraft. De viskar lögner och förvrider sinnen, medan furstar, krigsherrar och kultledare strider om makten i det gamla riket.  
 # Prolog:  
-Cassian Voss befinner sig i **Gråhamn**. Det är en laglös hamnstad styrd av **Hertig Valcorson**, som strävar efter kejsarkronan men saknar makt. Smugglare och prisjägare dominerar gatorna. Cassian lurade fel person – ockultisten **Moder Kyrana**. Hon genomskådade hans bluff, förbannade honom och skickade sina tjänare efter honom. Hon har även anlitat **Skuggtörne**, en osynlig lönnmördare som dödar med ett enda stick från skuggorna.
+Cassian Voss befinner sig i **Gråhamn**. Det är en laglös hamnstad styrd av **Hertig Valcorson**, som strävar efter kejsarkronan men saknar makt. Smugglare och prisjägare dominerar gatorna. Cassian lurade fel person – ockultisten **Moder Kyrana**. Hon genomskådade hans bluff, förbannade honom och skickade sina tjänare efter honom. Hon anlitade även **Skuggtörne**, en osynlig lönnmördare som dödar med ett enda stick från skuggorna.
 # Kapitel 1:
 Efter att ha lurat ockultisten gömde sig Cassian i **Den Brutna Lutan** - en sunkig taverna vid hamnen. Där träffade han **Raven**, en lönnmörderska som hade lyckats spåra honom dit. Hon erbjöd Cassian ett annat alternativ än döden: att stjäla boken **Skuggornas Nattbok** från Hertig Valcorsons bibliotek. I utbyte lovade hon honom att se till att **Skuggtörne** fick någon annan att jaga. Hon nämnde också att det bästa tillfället för att utföra stölden skulle vara under Hertig Valcorsons maskeradbal.  
 # Kapitel 2:
